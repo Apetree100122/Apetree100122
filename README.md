@@ -1,5 +1,5 @@
  Hi,
-     
+                                 / programs in : Education {Student} , Developer Program
       there 👋 Apetree100122/
        Apetree100122
      ✨ _.special_ ✨GitHub 
@@ -54,3 +54,10 @@ Pronouns: HE/HIM
   
     ⚡ Fun fact: ONLY TIME WILL TELL   
            APETREE100122 
+
+
+           ## other Accounts connected 
+           - apetree333
+           - apetree1001@yahoo.com
+           -apetree1984@gmail.com
+            -apetree0@gmail.com
