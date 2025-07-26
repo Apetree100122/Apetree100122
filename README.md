@@ -57,7 +57,7 @@ Pronouns: HE/HIM
 
 
            ## other Accounts connected 
-           - apetree333
+           - apetree333 <alexander.petree100122@gmail.com>
            - apetree1001@yahoo.com
            -apetree1984@gmail.com
             -apetree0@gmail.com
